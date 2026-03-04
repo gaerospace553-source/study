@@ -1,0 +1,2 @@
+# study
+ai untuk study
